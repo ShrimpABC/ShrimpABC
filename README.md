@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ShrimpABC
+- 👀 I’m interested in video games
